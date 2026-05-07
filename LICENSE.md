@@ -1,4 +1,4 @@
-
+shrink for brainrots Scripts hidden is the best shrink for brainrots Script, featuring auto-farm and custom skins. Safe and powerful for all your
 
 
 
